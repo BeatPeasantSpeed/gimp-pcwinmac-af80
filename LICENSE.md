@@ -1,4 +1,4 @@
-# 
+# Gratuito GIMP plugins para Mac OS | Premium GIMP plugins para PC Windows. Con exportar a SVG y pincel de curación — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
